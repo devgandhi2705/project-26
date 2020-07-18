@@ -1,0 +1,1 @@
+hi! friends i am masterchef dev. this my recipe for my paneeer chilli recipe. as well this also my 26 project of whitehat as i am student of it.
